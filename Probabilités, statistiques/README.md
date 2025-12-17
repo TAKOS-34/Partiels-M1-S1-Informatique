@@ -1,0 +1,1 @@
+Documents autorisés : Une feuille A4 + Table loi normale
