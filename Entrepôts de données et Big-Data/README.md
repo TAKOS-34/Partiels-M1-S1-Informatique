@@ -1,1 +1,1 @@
-Documents autorisés : Tout
+Documents autorisés : Aucuns
